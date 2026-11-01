@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Through+the+mist+of+the+unknown,;we+bound+to+understand.)](https://git.io/typing-svg)
+[![![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&center=false%C2%A0%E5%81%87&vCenter=false%C2%A0%E5%81%87&multiline=true&repeat=true%C2%A0%E7%9C%9F&random=false%C2%A0%E5%81%87&width=435&height=75&lines=Wading+through+unknown+dreams%2C;our+understanding+shall+be+gained.)](https://git.io/typing-svg)
